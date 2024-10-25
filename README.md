@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on disney land
 - 📫 How to reach me @rubentherunner
 - 😄 Pronouns: vas/co
-- ⚡ Fun fact: fun fact
+- ⚡ Fun fact: professional player of rocket league
 
 <!---
 balanhsarrola77/balanhsarrola77 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
